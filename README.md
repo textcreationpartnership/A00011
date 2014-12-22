@@ -32,16 +32,63 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Englands complaint to Iesus Christ, against the bishops canons of the late sinfull synod, a seditiou
+ENGLANDS
+COMPLAINT
+TO
+IESVS CHRIST
+AGAINST
+THE BISHOPS
+CANONS. OF THE LATE SINFULL SYNOD, A SEDITIOU
 #####Body#####
 
-1. Prediction. 1.
+1. ENGLANDS
+COMPLAINT
+TO
+IESVS CHRIST,
+AGAINST THE BISHOPS
+CANONS.
 
-1. Prediction. 2.
+    _ The first is: Concerning the Regall power.
 
-1. Prediction. 3.
+    _ The Second is, For the better keeping holy the day of his
+Majesties most happy Inauguration.
 
-1. Contradiction. 2.
+    _ The Third Canon is: For suppressing of the growth of Popery.
+
+    _ The Fourth Canon is, Against Socinianisme.
+
+    _ The Fifth Canon: Against Sectaries.
+
+    _ The Sixt Canon: An Oath injoyn'd for the preventing of all
+Innovations in Doctrine and Government.
+
+    _ The Seaventh Canon: A Declaration concerning some
+Rites and Ceremonies.
+
+    _ Canon 8. Of Preaching for Conformity.
+
+    _ Now passing by the 9th, 10th, 11th, 12th Canons, as of 〈◊〉
+moment, in the 13th. Of Excommunication and Absolution
+not to be pronounced but by a Priest.
+
+    _ Here now follow some Predictions of, and some Contradidictions
+unto this late Synod, observed and collected out
+of the Relation of a Conference by William
+of Canterbury.
+
+      * Prediction. 1.
+
+      * Prediction. 2.
+
+      * Prediction. 3.
+
+      * Contradiction. 2.
+
+    _ That Synods may erre and foulely too, this of 1640. proves with
+a 〈◊〉. If any Canons of it be sound, the Sixth hath poyson
+enough to infect them all. It's such a Cockatrice egge as was ne•••
+layd in England before, 〈◊〉 that eateth of a dyeth. I will here a
+little ••bowell this Oath, and shew you the mischief in it.
 
 **Types of content**
 
