@@ -32,13 +32,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-ENGLANDS
-COMPLAINT
-TO
-IESVS CHRIST
-AGAINST
-THE BISHOPS
-CANONS. OF THE LATE SINFULL SYNOD, A SEDITIOU
+
 #####Body#####
 
 1. ENGLANDS
